@@ -1,2 +1,2 @@
 # notes
-take notes about books
+take notes about reading
